@@ -7,4 +7,4 @@
 | AZN     | :white_check_mark: |
 | Diğer   | :x: |
 
-¯\_(ツ)_/¯ Serbest kullanın zaten o kadar da abartılacak bir şey değil bu ¯\_(ツ)_/¯
+( ͡°╭͜ʖ╮͡° ) Serbest kullanın zaten o kadar da abartılacak bir şey değil (ง'̀-'́)ง
