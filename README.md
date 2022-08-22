@@ -8,3 +8,5 @@
 | Diğer   | :x: |
 
 ( ͡°╭͜ʖ╮͡° ) Serbest kullanın zaten o kadar da abartılacak bir şey değil (ง'̀-'́)ง
+
+Lisans yok :=)
